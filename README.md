@@ -2,6 +2,6 @@
 
 Hi <img src="https://raw.githubusercontent.com/wasabeef/wasabeef/master/icons/wave.gif" width="30px">
 
-Every milestone on the road of life is engraved with the two words "starting point". 😈 😈 😈 😈 😈 😈
+Just be happy 🪂 🪂 🪂 🪂 🪂
 
-人生道路上的每一个里程碑，都刻着两个字“起点”。
+开心就好
