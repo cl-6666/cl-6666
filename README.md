@@ -2,6 +2,6 @@
 
 Hi <img src="https://raw.githubusercontent.com/wasabeef/wasabeef/master/icons/wave.gif" width="30px">
 
-Just be happy 🪂 🪂 🪂 🪂 🪂
+Thanks for the support 🪂 🪂 🪂 🪂 🪂
 
-开心就好
+感谢支持
