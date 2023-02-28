@@ -6,6 +6,6 @@
   </a> 
 </p>
 
-Thanks for the support 🪂 🪂 🪂 🏂 🏂 🏂🏻
+Thanks for the support 🪂 🪂 🪂 🏂 🏂 🏂
 
 感谢支持
